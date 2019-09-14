@@ -7,8 +7,6 @@ And who knows maybe in 10 years [GPUClub.com](https://www.GPUClub.com/) will bec
 
 Chat with me on my site
 
-[GPUClub.com](https://www.GPUClub.com/)
-
 Cheers!
 
 Daniel
